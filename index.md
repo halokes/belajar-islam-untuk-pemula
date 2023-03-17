@@ -1,4 +1,4 @@
 ---
-title: Welcome to my blog
+title: Tempat Belajar Islam untuk Pemula dari Nol 
 ---
 
